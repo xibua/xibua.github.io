@@ -14,12 +14,11 @@
 
 [http://www.pandownload.com/](http://www.pandownload.com/)
 
-所有优秀网站汇总合集-浏览器书签(将其导入浏览器即可)
+3.所有优秀网站汇总合集-浏览器书签(将其导入浏览器即可)
 
+(磁力神器/看电影追剧神器/无损付费下载音乐神器/追番神器/看小说出版书籍神器/漫画神器/电视盒子)
 
--------------------------------
-
-[www.lanzous.com/b09eo7t1a](http://www.lanzous.com/b09eo7t1a)
+[https://www.lanzous.com/ib245pc](https://www.lanzous.com/ib245pc)
 
 使用愉快~
 
